@@ -1,2 +1,2 @@
 # work
-Hi, my name is Popova Evelina!
+work or die
